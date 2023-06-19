@@ -1,0 +1,3 @@
+# Uraviry
+Ochaco Uraraka , también conocida como Uravity , es una estudiante de la Clase 1-A de la Academia U.A. que está entrenando para convertirse en un Heroína profesional. Es una de los protagonistas de la serie.
+Otros estudiantes han descrito a Ochaco como "la niña más relajada" entre su clase, siendo muy burbujeante y una especie de cabeza hueca a veces. A menudo es increíblemente contundente sin darse cuenta. Al igual que Izuku Midoriya, las reacciones de Ochaco tienden a ser exageradas y humorísticas: a menudo se divierte con ciertos rasgos de personalidad y peculiaridades que otros exhiben, estallando en risas a veces, que intenta reprimir.
